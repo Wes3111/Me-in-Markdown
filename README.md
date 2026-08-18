@@ -9,6 +9,7 @@ One of my main goals for this school year is to become more comfortable with cod
 
 ## My Playlist
 https://open.spotify.com/playlist/2zO55YUvhUIANtR8j6r2sy?si=cc7f7d89f2544f14&pt=76950c2770921952979c1b7f0c293142
+
 These are just some songs I really enjoy listening to and hopefully you enjoy this music taste.
 
 ## My Image Collage
